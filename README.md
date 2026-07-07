@@ -1,15 +1,3 @@
-## Hai! >:3  👋
 
-<!--
-**Patchthenightlight/Patchthenightlight** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on studying morse code.
-- 🌱 I’m currently learning Astronomy
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about my fandoms!
-- 📫 How to reach me: search for me on social websites
-- 😄 Pronouns: He/They/It/Kitty
-- ⚡ Fun fact: I'm bilingual!
--->
+Haiii, You can call me Patch, Ibuki or Nico. Sexuality:  Berrisexual  More stuff abt me :P  - I like to draw - My main fandom is currently Danganronpa, My birthday Is May 23  - I Love anime 𐙚˙✧˖°📷 ༘ ⋆｡ ˚ Random facts: - I’m double jointed - I’ve been drawing for 10+ years - I Can write in Morse code - I’m bilingual - English and Canadian French - I Kin Ibuki, Mikan and Miu -I’m a certified Burd nurd and a proud Buddhist :3 ☸️ - Struggling Mentally because I have no friends.
+I'm not looking to get hired, I'm just here for the sillies! >.<
