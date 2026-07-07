@@ -1,6 +1,9 @@
 **SEVERE FLASH WARNING FOR THE BOTTOM OF MY BIO** 
 
-<img width="868" height="50" alt="IMG_0607" src="https://github.com/user-attachments/assets/05201a4f-a3d8-4c57-a61d-ed3e8ed2e88b" />
+
+<img width="531" height="20" alt="IMG_0687" src="https://github.com/user-attachments/assets/d3e80ed4-c5db-4635-b307-a3e69aa933b7" />
+
+
 
 
 Haiii, You can call me Patch, Miu, Ibuki or Nico. Sexuality:  Berrisexual  More stuff abt me :P  - I like to draw - My main fandom is currently Danganronpa, My birthday Is May 23  - I Love anime 𐙚˙✧˖°📷 ༘ ⋆｡ ˚ Random facts: - I’m double jointed - I’ve been drawing for 10+ years - I Can write in Morse code - I’m bilingual - English and Canadian French - I Kin Ibuki, Mikan and Miu -I’m a certified Burd nurd and a proud Buddhist :3 ☸️ - Struggling Mentally because I have no friends.
@@ -8,7 +11,8 @@ I'm not looking to get hired, I'm just here for the sillies! >.<
 
 
 
-<img width="868" height="50" alt="IMG_0608" src="https://github.com/user-attachments/assets/edef2841-c08d-40c6-a9d7-bd2ef0dae08d" />
+<img width="800" height="30" alt="IMG_0704" src="https://github.com/user-attachments/assets/260e4a55-5bb0-4cbd-8bbf-f0c17cce42d9" />
+
 
 
 
