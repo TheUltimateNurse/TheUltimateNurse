@@ -118,3 +118,35 @@ I'm not looking to get hired, I'm just here for the sillies! >.<
 
 
 <img width="1079" height="59" alt="IMG_0705" src="https://github.com/user-attachments/assets/ce013e07-d931-48aa-9381-6cef0f199035" />
+
+<img width="150" height="20" alt="IMG_0496" src="https://github.com/user-attachments/assets/7d379e70-3a75-47f8-954a-2733f1e4cbf1" />
+<img width="150" height="20" alt="IMG_0497" src="https://github.com/user-attachments/assets/3a66166a-3da7-47f1-aeed-50e8eb6f6d83" />
+<img width="150" height="20" alt="IMG_0498" src="https://github.com/user-attachments/assets/6f7b0fa5-07ed-4119-82d1-521daf63ff5f" />
+<img width="150" height="20" alt="IMG_0499" src="https://github.com/user-attachments/assets/75733a71-baba-4bbe-8d7a-b7e33b3a7ce2" />
+<img width="150" height="20" alt="IMG_0500" src="https://github.com/user-attachments/assets/d87af14f-59f9-4591-93b8-8f6299131a5b" />
+<img width="150" height="20" alt="IMG_0501" src="https://github.com/user-attachments/assets/d87093f3-29ea-40af-9475-875966c55b9c" />
+<img width="150" height="20" alt="IMG_0502" src="https://github.com/user-attachments/assets/875abc85-63d0-4e7e-865a-d1f7ce1e09c6" />
+<img width="150" height="20" alt="IMG_0503" src="https://github.com/user-attachments/assets/b44affda-da2c-433e-a43f-39635e5f4b26" />
+<img width="150" height="20" alt="IMG_0504" src="https://github.com/user-attachments/assets/111ef02d-b7c4-4fa6-a7e9-876fa92e7f81" />
+<img width="150" height="20" alt="IMG_0505" src="https://github.com/user-attachments/assets/cf1e9cdd-ed58-478f-9a25-1eba5b5bc27d" />
+<img width="150" height="20" alt="IMG_0506" src="https://github.com/user-attachments/assets/79305284-5e5c-40ab-9c99-0673ce51b7df" />
+<img width="150" height="20" alt="IMG_0507" src="https://github.com/user-attachments/assets/d1a38d72-ec0c-4f57-a313-7a8ff25bdf43" />
+<img width="150" height="20" alt="IMG_0508" src="https://github.com/user-attachments/assets/ecb7fb11-fa13-4159-944c-01600cadbb0d" />
+<img width="150" height="20" alt="IMG_0509" src="https://github.com/user-attachments/assets/55656ecf-98ca-493e-8482-9982f875eb9a" />
+<img width="150" height="20" alt="IMG_0510" src="https://github.com/user-attachments/assets/2c6c1bd7-766e-4d63-bc22-fb709f6408e9" />
+<img width="150" height="20" alt="IMG_0511" src="https://github.com/user-attachments/assets/3bf06cf2-c1e7-43ef-851d-470c4ef5b9d7" />
+<img width="150" height="20" alt="IMG_0512" src="https://github.com/user-attachments/assets/54b536cc-351e-406b-98b6-73091a30a2f3" />
+<img width="150" height="20" alt="IMG_0513" src="https://github.com/user-attachments/assets/602c304f-35bf-4d3b-a135-2fd43c336eee" />
+<img width="150" height="20" alt="IMG_0514" src="https://github.com/user-attachments/assets/853ae41a-8506-4588-aad2-bec1b8b403a5" />
+<img width="150" height="20" alt="IMG_0515" src="https://github.com/user-attachments/assets/43fa0925-c6a1-4b03-b2ce-31484bb06340" />
+<img width="150" height="20" alt="IMG_0516" src="https://github.com/user-attachments/assets/fb51c7da-6666-497e-ab10-7585e2b09edc" />
+<img width="150" height="20" alt="IMG_0517" src="https://github.com/user-attachments/assets/fe7781ad-bb16-4fe9-bcf6-612887143597" />
+<img width="150" height="20" alt="IMG_0518" src="https://github.com/user-attachments/assets/1105e57d-62f4-4ebd-bab0-2205730aaf35" />
+<img width="150" height="20" alt="IMG_0519" src="https://github.com/user-attachments/assets/ed9f1e84-0fdf-4a79-a367-41341eeab184" />
+<img width="150" height="20" alt="IMG_0520" src="https://github.com/user-attachments/assets/e7ab0c01-3005-4183-b15d-4c3a531f7868" />
+<img width="150" height="20" alt="IMG_0521" src="https://github.com/user-attachments/assets/2ed20b0c-bfa1-4831-929d-b976e65c1051" />
+<img width="150" height="20" alt="IMG_0522" src="https://github.com/user-attachments/assets/8b9b82db-91b9-43ba-8ce6-8227f54875f9" />
+<img width="150" height="20" alt="IMG_0523" src="https://github.com/user-attachments/assets/121fba1e-2c90-4b77-b930-323222c34358" />
+<img width="150" height="20" alt="IMG_0524" src="https://github.com/user-attachments/assets/76233e5c-6e0f-4341-b9dc-21700114edb3" />
+<img width="150" height="20" alt="IMG_0525" src="https://github.com/user-attachments/assets/4fb76f48-17fc-43ac-8285-f943b3cf0840" />
+
