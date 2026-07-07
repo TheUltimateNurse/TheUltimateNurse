@@ -3,4 +3,6 @@ Haiii, You can call me Patch, Ibuki or Nico. Sexuality:  Berrisexual  More stuff
 I'm not looking to get hired, I'm just here for the sillies! >.<
 
 
-<img width="99" height="55" alt="IMG_0255" src="https://github.com/user-attachments/assets/cbef5612-f1da-4dc5-a20d-136ed4b53ab4" /> 
+<img width="99" height="55" alt="IMG_0255" src="https://github.com/user-attachments/assets/cbef5612-f1da-4dc5-a20d-136ed4b53ab4" />  <img width="99" height="56" alt="IMG_0258" src="https://github.com/user-attachments/assets/e1e79d68-7219-48d2-814f-89b0c35e45f9" /> <img width="99" height="56" alt="IMG_0257" src="https://github.com/user-attachments/assets/4e880276-4527-44e7-9178-4ded2a9e7491" />
+
+
