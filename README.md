@@ -30,7 +30,12 @@ I'm not looking to get hired, I'm just here for the sillies! >.<
 - 𑣲⋆ Homophobes
 - ⋆˚✿˖° Transphobes
 - ⋆.˚ Darkshippers/Proshippers
-
+- 𓏵‧₊˚ ┊ Religion disrespectors
+- ‧˚꒰🐾୭ ˚. ᵎᵎ Anti Furry/Therians!
+- °❀.ೃ࿔* Looking for Drama
+- ˙ . ꒷ 🍰 . 𖦹˙— R@pe Jokers :/
+- ‎ꫂ᭪݁ Under the age of 10 or over the age of 19 ( Unless trusted )
+- ‪‪❤︎‬ Rude people in General! 
 
 
 <img width="99" height="55" alt="IMG_0255" src="https://github.com/user-attachments/assets/cbef5612-f1da-4dc5-a20d-136ed4b53ab4" />  <img width="99" 
@@ -94,7 +99,17 @@ I'm not looking to get hired, I'm just here for the sillies! >.<
 <img width="500" height="19" alt="IMG_0700" src="https://github.com/user-attachments/assets/208fb80c-e7a2-4a94-9c18-6648b3755dc4" />
 
 
+⋆. 𐙚˚࿔ 𝐹𝑜𝓇 𝒫𝑜𝓃𝓎𝓉𝑜𝓌𝓃𝑒𝓇𝓈 ! 𝜗𝜚˚⋆
 
+- ⋆˚✿˖°C+H Is Highly encouraged Unless I have " DNI _ " In my name ⋆˚✿˖°
+- Never be afraid to Whisper or chat with me! ◝(ᵔᗜᵔ)◜
+- Taking inspo from my skins is fine!(˶ᵔ ᵕ ᵔ˶)
+- I give compliments and stalk GH pages alot ₍^. .^₎⟆
+- 𝙋𝙡𝙚𝙖𝙨𝙚 𝘿𝙉𝙄 𝙞𝙛 𝙮𝙤𝙪’𝙧𝙚 𝙪𝙣𝙙𝙚𝙧 𝙩𝙝𝙚 𝙖𝙜𝙚 𝙤𝙛 10 𝙤𝙧 𝙊𝙫𝙚𝙧 𝙩𝙝𝙚 𝙖𝙜𝙚 𝙤𝙛 20 ⚞^. .^⚟
+- pls pls plssss INT if You have the same interest as me ꉂ(˵˃ ᗜ ˂˵)
+- Kissing and Nuzzling is Okay as well, as long as you're not in the basic DNI categories 𐙚⋆°｡⋆♡
+- Shipping is Okay! ( Again if It's not in the DNI categories ) <𝟑 .ᐟ
+- If I do not respond to your whispers I'm offtab ᶻ 𝗓 𐰁
 
 <img width="58" height="18" alt="IMG_0355" src="https://github.com/user-attachments/assets/71ccdea3-4c18-477d-a3bb-9348b379ef99" />
 <img width="51" height="18" alt="IMG_0354" src="https://github.com/user-attachments/assets/1018ddee-925e-4160-b1fb-02a508d0ccc6" />
