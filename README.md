@@ -228,4 +228,9 @@ I'm not looking to get hired, I'm just here for the sillies! >.<
 <img width="150" height="20" alt="IMG_0493" src="https://github.com/user-attachments/assets/436360fa-0a7f-47bf-8f6b-c79bf4b9e8d7" />
 <img width="150" height="20" alt="IMG_0494" src="https://github.com/user-attachments/assets/142df4d3-6226-4f90-8899-b5765c91050b" />
 <img width="150" height="20" alt="IMG_0495" src="https://github.com/user-attachments/assets/87c5b0fb-2106-4ea5-b97c-226a42ad0a40" />
+<img width="150" height="20" alt="IMG_0844" src="https://github.com/user-attachments/assets/9e1a8fff-bc77-4671-998e-c411ae3c61ab" />
+<img width="150" height="20" alt="IMG_0437" src="https://github.com/user-attachments/assets/c187cedc-e12c-45fb-9fc9-8283a5fbac12" />
+<img width="150" height="20" alt="IMG_0842" src="https://github.com/user-attachments/assets/294584bc-f09c-4903-8e23-8496fb31a0a6" />
+<img width="150" height="20" alt="IMG_0841" src="https://github.com/user-attachments/assets/d6f3442a-36e8-4ed1-a59b-0d4063440846" />
+
 
