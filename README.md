@@ -1,6 +1,15 @@
 ## ⊹₊˚‧︵‿₊୨ Miu Glazer !! ୧₊‿︵‧˚₊⊹
 
-# SEVERE FLASH WARNING FOR MY BIO
+<img width="532" height="22" alt="IMG_0772" src="https://github.com/user-attachments/assets/5bdef0c0-33fa-405b-a8a0-6bed8392000b" />
+
+
+<img width="1200" height="600" alt="Untitled726_20260516184546" src="https://github.com/user-attachments/assets/91da46a0-f3c7-4dbd-bb89-b723e7251cce" />
+
+<img width="1200" height="35" alt="IMG_0687" src="https://github.com/user-attachments/assets/00ec0221-6fec-46f3-849b-91aa1b42f9f2" />
+
+
+# ˖ ࣪⊹ SEVERE FLASH WARNING FOR BIO ⊹₊ ⋆
+
 
 <img width="868" height="50" alt="IMG_0607" src="https://github.com/user-attachments/assets/2b1f0c20-cefb-4f27-b686-127930de4968" />
 
@@ -10,7 +19,9 @@
 
 Haiii, You can call me Patch, Miu, Ibuki or Nico. Sexuality:  Berrisexual  More stuff abt me :P  - I like to draw - My main fandom is currently Danganronpa, My birthday Is May 23  - I Love anime 𐙚˙✧˖°📷 ༘ ⋆｡ ˚ Random facts: - I’m double jointed - I’ve been drawing for 10+ years - I Can write in Morse code - I’m bilingual - English and Canadian French - I Kin Ibuki, Mikan, Junko, Chiaki and Miu ( I have many personalities, I can't stick to one ) -I’m a certified Burd nurd and a proud Buddhist :3 ☸️ - Struggling Mentally because I have no friends.
 I'm not looking to get hired, I'm just here for the sillies! >.<
- Relationship status: Single (Heck, I wonder why.... )
+ Relationship status: Single and desperate (Heck, I wonder why.... ) 
+ 
+ ### ⋆.𐙚 ̊ Trauma dumping is always Okay, I'll forever be here to listen ⋆.𐙚 
 
 
 
