@@ -70,6 +70,8 @@ I'm not looking to get hired, I'm just here for the sillies! >.<
 
 
 
+
+
 <img width="500" height="19" alt="IMG_0700" src="https://github.com/user-attachments/assets/208fb80c-e7a2-4a94-9c18-6648b3755dc4" />
 
 
@@ -217,5 +219,4 @@ I'm not looking to get hired, I'm just here for the sillies! >.<
 <img width="150" height="20" alt="IMG_0493" src="https://github.com/user-attachments/assets/436360fa-0a7f-47bf-8f6b-c79bf4b9e8d7" />
 <img width="150" height="20" alt="IMG_0494" src="https://github.com/user-attachments/assets/142df4d3-6226-4f90-8899-b5765c91050b" />
 <img width="150" height="20" alt="IMG_0495" src="https://github.com/user-attachments/assets/87c5b0fb-2106-4ea5-b97c-226a42ad0a40" />
-
 
