@@ -19,7 +19,16 @@ I'm not looking to get hired, I'm just here for the sillies! >.<
 
 
 
+˚.⋆꒰১ ∂ηι ℓιѕт: ໒꒱⋆.˚
 
+- ⋆˚꩜｡ Miu Haters 
+- 𝜗ৎ Transphobes 
+- ⊹ ࣪ ˖ Racists 
+- ˚˖𓍢ִ໋❀ Ableists
+- ⭑.ᐟ Sexists
+- 𑣲⋆ Homophobes
+- ⋆˚✿˖° Transphobes
+- ⋆.˚ Darkshippers/Proshippers
 
 
 
