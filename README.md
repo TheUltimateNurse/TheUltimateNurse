@@ -35,7 +35,12 @@ I'm not looking to get hired, I'm just here for the sillies! >.<
 - °❀.ೃ࿔* Looking for Drama
 - ˙ . ꒷ 🍰 . 𖦹˙— R@pe Jokers :/
 - ‎ꫂ᭪݁ Under the age of 10 or over the age of 19 ( Unless trusted )
-- ‪‪❤︎‬ Rude people in General! 
+- ‪‪❤︎‬ Rude people in General!
+  
+
+<img width="800" height="50" alt="IMG_0867" src="https://github.com/user-attachments/assets/fb909966-2d56-408d-b90d-e9376fefb231" />
+
+
 
 
 <img width="99" height="55" alt="IMG_0255" src="https://github.com/user-attachments/assets/cbef5612-f1da-4dc5-a20d-136ed4b53ab4" />  <img width="99" 
@@ -110,6 +115,9 @@ I'm not looking to get hired, I'm just here for the sillies! >.<
 - Kissing and Nuzzling is Okay as well, as long as you're not in the basic DNI categories 𐙚⋆°｡⋆♡
 - Shipping is Okay! ( Again if It's not in the DNI categories ) <𝟑 .ᐟ
 - If I do not respond to your whispers I'm offtab ᶻ 𝗓 𐰁
+
+  <img width="800" height="40" alt="IMG_0869" src="https://github.com/user-attachments/assets/e759353a-9415-473d-a57c-9cb11ff4f92e" />
+
 
 <img width="58" height="18" alt="IMG_0355" src="https://github.com/user-attachments/assets/71ccdea3-4c18-477d-a3bb-9348b379ef99" />
 <img width="51" height="18" alt="IMG_0354" src="https://github.com/user-attachments/assets/1018ddee-925e-4160-b1fb-02a508d0ccc6" />
@@ -270,4 +278,6 @@ I'm not looking to get hired, I'm just here for the sillies! >.<
 <img width="150" height="20" alt="IMG_0774" src="https://github.com/user-attachments/assets/13f3de2c-2060-4479-8114-70a05a4445dc" />
 
 
+
+<img width="450" height="72" alt="IMG_0865" src="https://github.com/user-attachments/assets/eed019c0-d645-40ac-a54e-1850f73d52c2" />
 
