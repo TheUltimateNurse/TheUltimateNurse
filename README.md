@@ -88,7 +88,7 @@ I'm not looking to get hired, I'm just here for the sillies! >.<
 <img width="100" height="57" alt="IMG_0279" src="https://github.com/user-attachments/assets/9572cd1c-89c9-4760-8506-6598972edc6a" />
 <img width="99" height="56" alt="IMG_0278" src="https://github.com/user-attachments/assets/e3d6a17b-ec90-4c00-b866-1e890cad47db" />
 <img width="99" height="56" alt="IMG_0277" src="https://github.com/user-attachments/assets/b778f4a5-bd20-471a-b046-d441050321a2" />
-<img width="210" height="118" alt="IMG_0276" src="https://github.com/user-attachments/assets/7c51fcbc-33d2-4517-bbc0-799266dc18e7" />
+<img width="99" height="56" alt="IMG_0276" src="https://github.com/user-attachments/assets/7c51fcbc-33d2-4517-bbc0-799266dc18e7" />
 <img width="99" height="56" alt="IMG_0275" src="https://github.com/user-attachments/assets/691b0719-aa7e-482a-a755-9cbf1ea61835" />
 <img width="99" height="56" alt="IMG_0274" src="https://github.com/user-attachments/assets/3a17847e-0fd0-4419-8033-a724eb104e7a" />
 <img width="99" height="56" alt="IMG_0273" src="https://github.com/user-attachments/assets/567c5072-afcf-4a69-96ab-90dcde65c753" />
