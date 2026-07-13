@@ -1,4 +1,8 @@
+<img width="800" height="95" alt="welcome17" src="https://github.com/user-attachments/assets/5f610e3d-bd7c-47e5-952c-ae6490f6152f" />
+
+
 ## ⊹₊˚‧︵‿₊୨ Miu Glazer !! ୧₊‿︵‧˚₊⊹
+
 
 <img width="532" height="22" alt="IMG_0772" src="https://github.com/user-attachments/assets/5bdef0c0-33fa-405b-a8a0-6bed8392000b" />
 
