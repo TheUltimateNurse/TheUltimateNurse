@@ -13,6 +13,15 @@
 
 
 # ˖ ࣪⊹ SEVERE FLASH WARNING FOR BIO ⊹₊ ⋆
+## ☆*⁀‧₊˚ Other Tw: ˚˖𓍢ִ໋❀
+- Mild horror
+- Sharp objects
+- Blood
+- organs
+- pills
+- Syringes
+- Sensitive topics
+- Dark Humor
 
 
 <img width="868" height="50" alt="IMG_0607" src="https://github.com/user-attachments/assets/2b1f0c20-cefb-4f27-b686-127930de4968" />
