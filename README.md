@@ -318,8 +318,9 @@ Haiii, You can call me Patch, Mikan, or Nico. Sexuality:  Berrisexual  More stuf
 <img width="150" height="20" alt="whore" src="https://github.com/user-attachments/assets/74729387-45ea-4fd5-9e3d-46d79951d3ed" />
 <img width="150" height="20" alt="linkinpark" src="https://github.com/user-attachments/assets/cca334b7-69ea-48da-a7e6-3ef709eadd58" />
 <img width="150" height="20" alt="alamode" src="https://github.com/user-attachments/assets/6c33d7ee-90f9-4879-abf6-45a90596799d" />
-<img width="150" height="25" alt="luckycharms" src="https://github.com/user-attachments/assets/e0d21a13-5363-431d-9e3d-5f542ebb7f2f" />
+<img width="150" height="20" alt="luckycharms" src="https://github.com/user-attachments/assets/e0d21a13-5363-431d-9e3d-5f542ebb7f2f" />
 <img width="150" height="20" alt="IMG_1623" src="https://github.com/user-attachments/assets/2475aaf2-c5f9-4484-bd3f-fe08e4bc1d7c" />
+<img width="150" height="20" alt="IMG_1624" src="https://github.com/user-attachments/assets/09ac60ad-4809-409d-bd92-81b3f4984e31" />
 
 
 
