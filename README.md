@@ -134,7 +134,7 @@ Haiii, You can call me Patch, Mikan, or Nico. Sexuality:  Berrisexual  More stuf
 - Never be afraid to Whisper or chat with me! ◝(ᵔᗜᵔ)◜
 - Taking inspo from my skins is fine!(˶ᵔ ᵕ ᵔ˶)
 - I give compliments and stalk GH pages alot ₍^. .^₎⟆
-- 𝙋𝙡𝙚𝙖𝙨𝙚 𝘿𝙉𝙄 𝙞𝙛 𝙮𝙤𝙪’𝙧𝙚 𝙪𝙣𝙙𝙚𝙧 𝙩𝙝𝙚 𝙖𝙜𝙚 𝙤𝙛 10 𝙤𝙧 𝙊𝙫𝙚𝙧 𝙩𝙝𝙚 𝙖𝙜𝙚 𝙤𝙛 20 ⚞^. .^⚟
+- 𝙋𝙡𝙚𝙖𝙨𝙚 𝘿𝙉𝙄 𝙞𝙛 𝙮𝙤𝙪’𝙧𝙚 𝙪𝙣𝙙𝙚𝙧 𝙩𝙝𝙚 𝙖𝙜𝙚 𝙤𝙛 10 𝙤𝙧 if you're creepy ⚞^. .^⚟
 - pls pls plssss INT if You have the same interest as me ꉂ(˵˃ ᗜ ˂˵)
 - Kissing and Nuzzling is Okay as well, as long as you're not in the basic DNI categories 𐙚⋆°｡⋆♡
 - Shipping is Okay! ( Again if It's not in the DNI categories ) <𝟑 .ᐟ
