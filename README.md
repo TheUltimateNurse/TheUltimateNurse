@@ -128,7 +128,7 @@ Haiii, You can call me Patch, Mikan, or Nico. Sexuality:  Berrisexual  More stuf
 <img width="500" height="19" alt="IMG_0700" src="https://github.com/user-attachments/assets/208fb80c-e7a2-4a94-9c18-6648b3755dc4" />
 
 
-⋆. 𐙚˚࿔ 𝐹𝑜𝓇 𝒫𝑜𝓃𝓎𝓉𝑜𝓌𝓃𝑒𝓇𝓈 ! 𝜗𝜚˚⋆
+# ⋆. 𐙚˚࿔ 𝐹𝑜𝓇 𝒫𝑜𝓃𝓎𝓉𝑜𝓌𝓃𝑒𝓇𝓈 ! 𝜗𝜚˚⋆
 
 - ⋆˚✿˖°C+H Is Highly encouraged Unless I have " DNI _ " In my name ⋆˚✿˖°
 - Never be afraid to Whisper or chat with me! ◝(ᵔᗜᵔ)◜
