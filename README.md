@@ -140,6 +140,10 @@ Haiii, You can call me Patch, Mikan, or Nico. Sexuality:  Berrisexual  More stuf
 - Shipping is Okay! ( Again if It's not in the DNI categories ) <𝟑 .ᐟ
 - If I do not respond to your whispers I'm offtab ᶻ 𝗓 𐰁
 
+  This is Me! 
+
+  ↓ ↓ ↓ ↓ ↓ ↓ ↓ ↓
+
   <img width="99" height="56" alt="Untitled865_20260730195640" src="https://github.com/user-attachments/assets/34b15935-48e8-4e60-a8ad-1c1338ab3896" />
 
 
