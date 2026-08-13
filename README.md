@@ -109,15 +109,13 @@ Haiii, You can call me Patch, Mikan, or Nico. Sexuality:  Berrisexual  More stuf
 <img width="98" height="55" alt="IMG_0265" src="https://github.com/user-attachments/assets/cf0c41fe-c9e6-4321-acb7-e83aa1ff95db" />
 <img width="105" height="63" alt="IMG_0264" src="https://github.com/user-attachments/assets/61ed1b06-f2bf-479a-b761-8fd6e86d1a37" />
 <img width="99" height="56" alt="IMG_0263" src="https://github.com/user-attachments/assets/08afcfd9-e924-4a84-b4aa-8f1e189dec6e" /> 
-<img width="99" height="56" alt="Untitled865_20260709005200" src="https://github.com/user-attachments/assets/f18dd996-5be5-4ada-adac-3f4deb4104ca" />
-<img width="99" height="56" alt="Untitled865_20260709043301" src="https://github.com/user-attachments/assets/a02418b2-0ab6-473c-8b03-6f61bc7cdd68" />
-<img width="99" height="56" alt="Untitled865_20260709043741" src="https://github.com/user-attachments/assets/d5b6f7b8-eaeb-4c2b-8904-82f7d3bdd2d7" />
-<img width="99" height="56" alt="Untitled865_20260709043647" src="https://github.com/user-attachments/assets/19a95783-3d9f-4928-a55c-1114f5d988c1" />
-<img width="99" height="56" alt="Untitled865_20260709043546" src="https://github.com/user-attachments/assets/9cbc2370-7ffb-4d83-964b-c849fee0531e" />
-<img width="99" height="56" alt="Untitled865_20260709043512" src="https://github.com/user-attachments/assets/638d4762-5478-4311-8b91-c2d09b012a68" />
-<img width="99" height="56" alt="Untitled865_20260709043445" src="https://github.com/user-attachments/assets/a2d71cf2-d382-473e-a602-b4605540f3ce" />
-<img width="99" height="56" alt="Untitled865_20260709043414" src="https://github.com/user-attachments/assets/5bd8fbd0-fe3f-44ae-af3a-bc6bef49b3ed" />
-<img width="99" height="56" alt="Untitled865_20260709043224" src="https://github.com/user-attachments/assets/75f2ef14-6f4c-46af-b0ed-ba2294f5a26d" /> 
+<img width="99" height="56" alt="Untitled865_20260813115124" src="https://github.com/user-attachments/assets/cdbd1356-aa03-4560-8298-40c1e3235e29" />
+<img width="99" height="56" alt="Untitled865_20260813114910" src="https://github.com/user-attachments/assets/4321dc29-5506-414d-bd86-4d01f95fe38d" />
+<img width="99" height="56" alt="Untitled865_20260813114657" src="https://github.com/user-attachments/assets/cbaa7448-7dcb-4738-871c-24cde8e313d2" />
+<img width="99" height="56" alt="Untitled865_20260813114447" src="https://github.com/user-attachments/assets/24e066ee-ef3f-436a-954c-455e5b9682b1" />
+
+
+
 
 
 
