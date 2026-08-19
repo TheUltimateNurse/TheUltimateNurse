@@ -419,3 +419,19 @@ Haiii, You can call me Patch, Mikan, or Nico. Sexuality:  Berrisexual  More stuf
 <img width="20" height="20" alt="Theta-Delta_symbol" src="https://github.com/user-attachments/assets/e1b50a6f-55f5-4249-b32b-63b2a1203358" /> 
 <img width="20" height="20" alt="792c468b3b887f4f59af537704a193e8" src="https://github.com/user-attachments/assets/4a8715bc-2c4e-4f19-9452-ece2a69b596e" />
 
+# Featured artworks:
+
+<img width="200" height="200" alt="IMG_0173" src="https://github.com/user-attachments/assets/19663250-10af-48b0-a738-f35cf2bcf626" />
+<img width="200" height="200" alt="Untitled746_20260621211527" src="https://github.com/user-attachments/assets/4199d86a-5588-4692-b2b9-e843e3dc87f2" />
+<img width="200" height="200" alt="IMG_6822" src="https://github.com/user-attachments/assets/76eafa10-bef2-41c2-9625-6a33a6dd20aa" />
+<img width="200" height="200" alt="IMG_6824" src="https://github.com/user-attachments/assets/9533fba9-a061-46cf-8d02-0f36afc37f6d" />
+
+<img width="200" height="200" alt="IMG_2176" src="https://github.com/user-attachments/assets/45595472-5b1f-4f6f-8dcd-ecf91a2460b0" />
+<img width="200" height="200" alt="IMG_1652" src="https://github.com/user-attachments/assets/20e4db1f-25f5-437e-a676-0a640651a27c" />
+<img width="200" height="200" alt="IMG_2551" src="https://github.com/user-attachments/assets/7bb10b8d-4eba-4bd9-b2a3-76df61bdf09b" />
+<img width="200" height="200" alt="IMG_2270" src="https://github.com/user-attachments/assets/b3769495-2a5e-4642-8bc3-a569574d36fe" />
+<img width="200" height="200" alt="IMG_2034" src="https://github.com/user-attachments/assets/0ae1c063-a68b-4c60-be36-d6842ea7ad30" />
+<img width="20p" height="200" alt="IMG_2548" src="https://github.com/user-attachments/assets/a0181b90-c428-4750-92d3-40ea5f8453e1" />
+<img width="200" height="200" alt="IMG_2547" src="https://github.com/user-attachments/assets/b9ba1d55-f46f-4335-98d3-0e035954525d" />
+<img width="200" height="200" alt="IMG_2198" src="https://github.com/user-attachments/assets/bc688008-a56e-492f-992a-f5056ef082ee" />
+
