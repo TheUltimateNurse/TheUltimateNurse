@@ -45,7 +45,7 @@ Haiii, You can call me Patch, Mikan, or Nico. Sexuality:  Berrisexual  More stuf
 
 ˚.⋆꒰১ ∂ηι ℓιѕт: ໒꒱⋆.˚
 
-- ⋆˚꩜｡ Miu Haters 
+- ⋆˚꩜｡ Miu Haters /hj
 - 𝜗ৎ Transphobes 
 - ⊹ ࣪ ˖ Racists 
 - ˚˖𓍢ִ໋❀ Ableists
