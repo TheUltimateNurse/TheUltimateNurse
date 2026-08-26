@@ -419,6 +419,9 @@ Haiii, You can call me Patch, Mikan, or Nico. Sexuality:  Berrisexual  More stuf
 <img width="20" height="20" alt="Theta-Delta_symbol" src="https://github.com/user-attachments/assets/e1b50a6f-55f5-4249-b32b-63b2a1203358" /> 
 <img width="20" height="20" alt="792c468b3b887f4f59af537704a193e8" src="https://github.com/user-attachments/assets/4a8715bc-2c4e-4f19-9452-ece2a69b596e" />
 
+<img width="868" height="70" alt="purple2" src="https://github.com/user-attachments/assets/77f2a290-7c28-45de-b739-060819a061bc" />
+
+
 # Featured artworks:
 
 <img width="200" height="200" alt="IMG_0173" src="https://github.com/user-attachments/assets/19663250-10af-48b0-a738-f35cf2bcf626" />
