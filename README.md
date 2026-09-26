@@ -148,8 +148,10 @@ Haiii, You can call me Patch, Mikan, or Nico. Sexuality:  Berrisexual  More stuf
 
   ↓ ↓ ↓ ↓ ↓ ↓ ↓ ↓
 
-  <img width="105" height="59" alt="Untitled865_20260730195640" src="https://github.com/user-attachments/assets/34b15935-48e8-4e60-a8ad-1c1338ab3896" />  <img width="99" height="56" alt="IMG_2305" src="https://github.com/user-attachments/assets/6dd7e8d0-ba10-43f1-b507-966f920ce698" />
-  <img width="99" height="56" alt="IMG_2306" src="https://github.com/user-attachments/assets/3506f4e6-c261-4dac-9d5d-b39456e778db" />
+ <img width="99" height="56" alt="Screenshot 2026-09-26 8 29 38 AM" src="https://github.com/user-attachments/assets/529133f8-5314-4fb3-8939-7d53f0067340" />
+<img width="99" height="56" alt="Screenshot 2026-09-26 8 30 02 AM" src="https://github.com/user-attachments/assets/df369437-b257-4afb-b59a-a3926b0dc54e" />
+<img width="99" height="56" alt="Screenshot 2026-09-26 8 29 54 AM" src="https://github.com/user-attachments/assets/b9255307-10c0-48ae-8a8f-1b210d1dda91" />
+<img width="99" height="56" alt="Screenshot 2026-09-26 8 29 45 AM" src="https://github.com/user-attachments/assets/846bf397-a4d6-4a02-b1f3-1563cddef889" />
 
 
 
