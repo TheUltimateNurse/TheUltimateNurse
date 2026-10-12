@@ -102,6 +102,3 @@ Haiii, You can call me Patch, Mikan, or Nico. Sexuality:  Berrisexual  More stuf
 <img width="99" height="56" alt="romantic" src="https://github.com/user-attachments/assets/3cf4b16d-31e8-4478-82cc-bf3eb8db8eee" />
 <img width="99" height="56" alt="icollectplushies" src="https://github.com/user-attachments/assets/3e4d7875-087f-44a2-95c1-72d2a0319078" />
 <img width="99" height="56" alt="ocs" src="https://github.com/user-attachments/assets/79ed8a2d-cdca-47d5-8dac-dab4cb90c100" />
-<img width="99" height="56" alt="iloveyou" src="https://github.com/user-attachments/assets/0bb58ccd-1dd9-4895-8451-2473a18a8668" />
-<img width="99" height="56" alt="creature" src="https://github.com/user-attachments/assets/a57242f2-2238-4211-9e29-e02251da4440" />
-
