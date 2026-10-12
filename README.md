@@ -17,9 +17,7 @@
 
 
 
-# ˖ ࣪⊹ SEVERE FLASH WARNING FOR BIO ⊹₊ ⋆
-. . Other Tw . .
-- Syringes
+# ˖ ࣪⊹ Tw: !! Syringes !! ⊹₊ ⋆
 
 
 <img width="800" height="50" alt="rosebowstring" src="https://github.com/user-attachments/assets/d6d244f2-9bf8-49ce-b1c4-d40b1ef7fbe7" />
