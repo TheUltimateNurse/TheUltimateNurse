@@ -1,10 +1,10 @@
 <img width="800" height="95" alt="welcome17" src="https://github.com/user-attachments/assets/5f610e3d-bd7c-47e5-952c-ae6490f6152f" />
 
 
-## ⊹₊˚‧︵‿₊୨ Miu Glazer !! ୧₊‿︵‧˚₊⊹
+## ⊹₊˚‧︵‿₊୨ Mikan Kinnie !! ୧₊‿︵‧˚₊⊹
 
 
-<img width="532" height="22" alt="IMG_0772" src="https://github.com/user-attachments/assets/5bdef0c0-33fa-405b-a8a0-6bed8392000b" />
+<img width="2048" height="2048" alt="Untitled7_20261011220419" src="https://github.com/user-attachments/assets/cd738b4c-fff4-4f40-b279-8dd9b7249b8d" />
 
 
 <img width="1200" height="600" alt="Untitled726_20260516184546" src="https://github.com/user-attachments/assets/91da46a0-f3c7-4dbd-bb89-b723e7251cce" />
