@@ -1,3 +1,6 @@
+
+
+
 <img width="500" height="100" alt="welcome7" src="https://github.com/user-attachments/assets/61df0471-7f35-4197-9ef9-3a5e98dd65f2" />
 
 
@@ -23,6 +26,10 @@
 <img width="800" height="50" alt="rosebowstring" src="https://github.com/user-attachments/assets/d6d244f2-9bf8-49ce-b1c4-d40b1ef7fbe7" />
 
 
+
+
+
+<img width="306" height="43" alt="TextStudio-Typewriter" src="https://github.com/user-attachments/assets/82c183cc-e710-4e8a-9448-6ba9ff18d398" />
 
 
 
