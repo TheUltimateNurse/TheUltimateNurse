@@ -3,10 +3,10 @@
 
 
 
-## 🍥 ⊹₊˚‧︵‿₊୨ Mikan Kinnie !! ୧₊‿︵‧˚₊⊹ 🍰
+
 <img width="1125" height="150" alt="pink2" src="https://github.com/user-attachments/assets/88db909b-507e-488b-aa07-269ca1eced92" />
 
-
+## 🍥 ⊹₊˚‧︵‿₊୨ Mikan Kinnie !! ୧₊‿︵‧˚₊⊹ 🍰
 
 <img width="500" height="500" alt="Untitled7_20261011220419" src="https://github.com/user-attachments/assets/cd738b4c-fff4-4f40-b279-8dd9b7249b8d" />
 
