@@ -4,7 +4,7 @@
 ## ⊹₊˚‧︵‿₊୨ Mikan Kinnie !! ୧₊‿︵‧˚₊⊹
 
 
-<img width="2048" height="2048" alt="Untitled7_20261011220419" src="https://github.com/user-attachments/assets/cd738b4c-fff4-4f40-b279-8dd9b7249b8d" />
+<img width="1000" height="1000" alt="Untitled7_20261011220419" src="https://github.com/user-attachments/assets/cd738b4c-fff4-4f40-b279-8dd9b7249b8d" />
 
 
 
