@@ -2,17 +2,21 @@
 
 
 ## ⊹₊˚‧︵‿₊୨ Mikan Kinnie !! ୧₊‿︵‧˚₊⊹
+<img width="1125" height="150" alt="pink2" src="https://github.com/user-attachments/assets/88db909b-507e-488b-aa07-269ca1eced92" />
+
 
 
 <img width="500" height="500" alt="Untitled7_20261011220419" src="https://github.com/user-attachments/assets/cd738b4c-fff4-4f40-b279-8dd9b7249b8d" />
 
 
 
-<img width="1200" height="35" alt="IMG_0687" src="https://github.com/user-attachments/assets/00ec0221-6fec-46f3-849b-91aa1b42f9f2" />
+
+<img width="1125" height="100" alt="pinkstars" src="https://github.com/user-attachments/assets/082fc930-8bd3-4b9a-bd76-52120859a7ff" />
+
 
 
 # ˖ ࣪⊹ SEVERE FLASH WARNING FOR BIO ⊹₊ ⋆
-+
+. . Other Tw . .
 - pills
 - Syringes
 - Sensitive topics
@@ -36,13 +40,13 @@ Haiii, You can call me Patch, Mikan, or Nico. Sexuality:  Berrisexual  More stuf
 
 
 
-˚.⋆꒰১ ∂ηι ℓιѕт: ໒꒱⋆.˚
+## ˚.⋆꒰১ ∂ηι ℓιѕт: ໒꒱⋆.˚
 
 - ⋆˚꩜｡ Mikan Haters /hj
 - 𝜗ৎ Transphobes 
 - ⊹ ࣪ ˖ Racists 
 - ˚˖𓍢ִ໋❀ Ableists
-- ⭑.ᐟ Sexists
+- ⭑.ᐟ Sexists 
 - 𑣲⋆ Homophobes
 - ⋆˚✿˖° Transphobes
 - ⋆.˚ Darkshippers/Proshippers
@@ -55,7 +59,7 @@ Haiii, You can call me Patch, Mikan, or Nico. Sexuality:  Berrisexual  More stuf
   
 
 
-<img width="500" height="19" alt="IMG_0700" src="https://github.com/user-attachments/assets/208fb80c-e7a2-4a94-9c18-6648b3755dc4" />
+<img width="1000" height="50" alt="IMG_0700" src="https://github.com/user-attachments/assets/208fb80c-e7a2-4a94-9c18-6648b3755dc4" />
 
 
 # ⋆. 𐙚˚࿔ 𝐹𝑜𝓇 𝒫𝑜𝓃𝓎𝓉𝑜𝓌𝓃𝑒𝓇𝓈 ! 𝜗𝜚˚⋆
