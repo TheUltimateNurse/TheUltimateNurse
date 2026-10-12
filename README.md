@@ -1,7 +1,8 @@
-<img width="800" height="95" alt="welcome17" src="https://github.com/user-attachments/assets/5f610e3d-bd7c-47e5-952c-ae6490f6152f" />
+<img width="794" height="91" alt="Screenshot 2026-10-11 10 24 20 PM" src="https://github.com/user-attachments/assets/6c1f3fef-b100-4a89-b1b6-584835d39828" />
 
 
-## ⊹₊˚‧︵‿₊୨ Mikan Kinnie !! ୧₊‿︵‧˚₊⊹
+
+## 🍥 ⊹₊˚‧︵‿₊୨ Mikan Kinnie !! ୧₊‿︵‧˚₊⊹ 🍰
 <img width="1125" height="150" alt="pink2" src="https://github.com/user-attachments/assets/88db909b-507e-488b-aa07-269ca1eced92" />
 
 
@@ -17,11 +18,11 @@
 
 # ˖ ࣪⊹ SEVERE FLASH WARNING FOR BIO ⊹₊ ⋆
 . . Other Tw . .
-- pills
 - Syringes
-- Sensitive topics
 
-<img width="868" height="50" alt="IMG_0607" src="https://github.com/user-attachments/assets/2b1f0c20-cefb-4f27-b686-127930de4968" />
+
+<img width="800" height="50" alt="rosebowstring" src="https://github.com/user-attachments/assets/d6d244f2-9bf8-49ce-b1c4-d40b1ef7fbe7" />
+
 
 
 
@@ -77,3 +78,4 @@ Haiii, You can call me Patch, Mikan, or Nico. Sexuality:  Berrisexual  More stuf
 
 
  
+<img width="1000" height="50" alt="bow" src="https://github.com/user-attachments/assets/b5b5f91f-0615-45bc-8c68-780e055c46e2" />
