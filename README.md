@@ -1,6 +1,7 @@
 
 
 
+
 <img width="500" height="100" alt="welcome7" src="https://github.com/user-attachments/assets/61df0471-7f35-4197-9ef9-3a5e98dd65f2" />
 
 
@@ -102,3 +103,11 @@
 <img width="99" height="56" alt="romantic" src="https://github.com/user-attachments/assets/3cf4b16d-31e8-4478-82cc-bf3eb8db8eee" />
 <img width="99" height="56" alt="icollectplushies" src="https://github.com/user-attachments/assets/3e4d7875-087f-44a2-95c1-72d2a0319078" />
 <img width="99" height="56" alt="ocs" src="https://github.com/user-attachments/assets/79ed8a2d-cdca-47d5-8dac-dab4cb90c100" />
+
+
+<img width="443" height="295" alt="Screenshot 2026-10-27 1 27 08 AM" src="https://github.com/user-attachments/assets/c3b184d0-5eaf-46e7-9965-f2582f3e7c56" />
+
+
+
+
+<𝟑 .ᐟ ~ I love youuu 🐝
