@@ -35,7 +35,7 @@
 
 
 𓏲๋࣭࣪˖🏳‍⚧.ᐟ Haiii, You can call me Patch, Mikan, or Nico. Sexuality:  Berrisexual  More stuff abt me :P  - I like to draw - My main fandom is currently Danganronpa, My birthday Is May 23  - I Love anime 𐙚˙✧˖°📷 ༘ ⋆｡ ˚ Random facts: - I’m double jointed - I’ve been drawing for 10+ years - I Can write in Morse code - I’m bilingual - English and Canadian French - I Kin Ibuki, Mikan, Junko, Chiaki and Miu ( I have many personalities, I can't stick to one ) -I’m a certified Burd nurd and a proud Buddhist :3 ☸️ - Struggling Mentally because I have no friends. I'm young but not inexperienced -  I have CSBD ( Compulsive sexual behaviour disorder ) :'C - Proud furry and Therian!! - I'm not looking to get hired, I'm just here for the sillies! >.<
- Relationship status: Single ❤️‍🩹🎀 - I am an Age regressor, please be patient.  ‧˚꒰🍼୭ ˚. ᵎᵎ
+ Relationship status: TAKEN BY THE MOST WONDERFULEST AWESOMEST BOYFRIEND IN THE WORLD ❤️‍🩹🎀 - I am an Age regressor, please be patient.  ‧˚꒰🍼୭ ˚. ᵎᵎ
  
  ### ⋆.𐙚 ̊ Trauma dumping is always Okay, I'll forever be here to listen ⋆.𐙚 
 
