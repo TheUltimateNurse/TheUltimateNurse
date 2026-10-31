@@ -105,10 +105,10 @@
 <img width="99" height="56" alt="ocs" src="https://github.com/user-attachments/assets/79ed8a2d-cdca-47d5-8dac-dab4cb90c100" />
 
 
-<img width="443" height="295" alt="Screenshot 2026-10-27 1 27 08 AM" src="https://github.com/user-attachments/assets/c3b184d0-5eaf-46e7-9965-f2582f3e7c56" />
+<img width="736" height="725" alt="_" src="https://github.com/user-attachments/assets/486faf3c-de77-4128-a548-c9e2169eb74e" />
 
 
 # ────୨ৎ────
 
 
-# <𝟑 .ᐟ ~ I love youuu 🐝
+# <𝟑 .ᐟ ~ I love you
